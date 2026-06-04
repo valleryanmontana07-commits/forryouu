@@ -1,2 +1,0 @@
-# forryouu
-Happy Graduation Keyzyaa 🎓🤍
